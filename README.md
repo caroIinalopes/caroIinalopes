@@ -1,16 +1,19 @@
-## Hi there 👋
+Boas vindas ao meu perfil 🤘🏻😽
 
-<!--
-**caroIinalopes/caroIinalopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é carolina lopes
 
-Here are some ideas to get you started:
+° Estou estudando na Alura
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+° Estou me desenvolvendo na linguagem JavaScript
+
+° Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
+
+Você pode entrar em contato comigo 📩
+
+carolinalopes1405@gmail.com
+
+@caroIinalopes
+
+![](C:\Users\CAROLINASILVALOPES\Downloads\1726610_a98e8.gif)
+
+
