@@ -14,6 +14,6 @@ carolinalopes1405@gmail.com
 
 @caroIinalopes
 
-![](C:\Users\CAROLINASILVALOPES\Downloads\1726610_a98e8.gif)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fpt.picmix.com%2Fstamp%2Femoji-1726610&psig=AOvVaw3NoS8JW71Qt88CZvL11_Wt&ust=1717804152996000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCNjOm6eVyIYDFQAAAAAdAAAAABAE)
 
 
