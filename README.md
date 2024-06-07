@@ -1,6 +1,6 @@
 Boas vindas ao meu perfil 🤘🏻😽
 
-Meu nome é carolina lopes
+Meu nome é **carolina lopes**
 
 ° Estou estudando na Alura
 
